@@ -5,4 +5,4 @@
 <img width="536" height="391" alt="5HY2G0s" src="https://github.com/user-attachments/assets/fc1bd707-72a8-44a5-902c-e66312dd5f83" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[main](https://github.com/kkyomoto)⠀⠀⠀⠀[atabook](https://kkymoto.atabook.org)⠀⠀⠀⠀[prns.cc]()
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[main](https://github.com/kkyomoto)⠀⠀⠀⠀[atabook](https://kkymoto.atabook.org)⠀⠀⠀⠀[prns.cc](https://prns.cc/dnylpg)
